@@ -1,4 +1,4 @@
-- 👋 Olá, sou a @profmariakotrybala
+- 👋 Olá, sou a Prof Malu
 
   Um pouco sobre mim 📂
 - No meu tempo livre leio e assisto doramas 📖
